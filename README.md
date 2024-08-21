@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning how to have access to coding thanks to IA
 - 📫 How to reach me adelie.celier@gmail.com
 - 😄 Pronouns: she/her
+- 🧑🏻‍🍼 Fun fact : I am a very funny girl ! Slide in my DMs to see. 
 
 
 <!---
